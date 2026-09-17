@@ -4,12 +4,11 @@
 
 Gjennom kommunikasjon deler vi tanker, ideer, informasjon, erfaringer og følelser med andre mennesker. Kommunikasjon påvirker hvordan vi forstår hverandre, hvordan vi bygger relasjoner og hvordan vi samarbeider i både privatliv og arbeidsliv. Det kan være verbal eller nonverbal. Kommunikasjon er en avgjørende faktor i ledelse og organisasjonsutvikling. God kommunikasjon kan føre til forbedret dialog, sterkere relasjoner og mer effektiv interaksjon mellom mennesker. Det er hvorfor kommunikasjonsferdigheter er en av de viktigste kompetansene i arbeidslivet. (Nordic Coach & NLP Academy).
 
-Det er mulig å bli bedre til å kommunisere. En viktig del av kommunikasjon er å vise at man er interessert. Passiv og aktiv lytting og positive tilbakemeldinger er effektive møter å vise intresse. For eksempel øyekontakt, nikking og noen småord som "ja" og "akkurat" oppforder til å fortsette og viser at man følger med. God kommunikasjon forutsetter at alle deltakernes opplevelser og erfaringer er like mye verd og alle får mulighet till å påvirke kommunikasjonen omtrent like mye.
-(Gjøsund & Huseby, 2015).
+Det er mulig å bli bedre til å kommunisere. En viktig del av kommunikasjon er å vise at man er interessert. Passiv og aktiv lytting og positive tilbakemeldinger er effektive møter å vise intresse. For eksempel øyekontakt, nikking og noen småord som "ja" og "akkurat" oppforder til å fortsette og viser at man følger med. God kommunikasjon forutsetter at alle deltakernes opplevelser og erfaringer er like mye verd og alle får mulighet till å påvirke kommunikasjonen omtrent like mye.(Gjøsund & Huseby, 2015).
 
-Det er viktig at man kan kommunisere med mennesker i ulike posisjoner og roller. Makt- og statusforskjeller kan gjøre det krevende for alle å føle seg like mye verd
+Det er viktig at man kan kommunisere med mennesker i ulike posisjoner og roller. Forskjeller i makt og status kan gjøre det krevende for alle å føle seg likeverdig. Derfor er det viktig å være respektfull, lytte til andre og prøve å skape en god og likeverdig kommunikasjon.
 
-Humor kan gjøre kommunikasjonen lettere.
+Humor kan gjøre kommunikasjonen lettere og redusere spenninger.
 
 
 
